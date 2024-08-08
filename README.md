@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @freethinker85
+- 👋 Hi, My name  is Hamza FB.
 - 👀 I’m interested in cyber security 
 - 🌱 I’m currently learning doing  cyber security  a t Pre scholas bootcamps (hybrid: Inperson and online)
 - 💞️ I’m looking to collaborate on project  related  to the cyber security 
